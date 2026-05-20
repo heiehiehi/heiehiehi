@@ -16,4 +16,4 @@
 **欢迎各位朋友联系交流~**
 
 QQ：1124533793
-微信：Xinghuisama
+微信：XingHuisama
